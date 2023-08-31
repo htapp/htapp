@@ -2,12 +2,17 @@
 打不开在域名前加https://
 
 https://ht0.app
+
 https://ht2.app
+
 https://ht3.app
 
+
 海外永久（ 需翻墙）
-hongtao.tv
-hongtao.vip
+https://hongtao.tv
+
+https://hongtao.vip
+
 
 注意邮件对同一邮箱每天只回复一次
 
