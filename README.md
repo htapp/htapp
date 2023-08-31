@@ -13,6 +13,10 @@ https://hongtao.tv
 
 https://hongtao.vip
 
+邮箱自动发布：
+
+hongtaoav@gmail.com
+
 
 注意邮件对同一邮箱每天只回复一次
 
