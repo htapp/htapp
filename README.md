@@ -1,28 +1,22 @@
-最新地址
-打不开在域名前加https://
+
+最新地址打不開網域前加https://
 
 https://ht0.app
 
 https://ht7.app
 
+海外永久（需翻牆） hongtao.tv
 
+hongtao.vip
 
-
-海外永久（ 需翻墙）
-https://hongtao.tv
-
-https://hongtao.vip
-
-邮箱自动发布：
+郵箱自動發布：
 
 hongtaoav1@gmail.com
 
+注意郵件對同一郵箱每天只回覆一次
 
-注意邮件对同一邮箱每天只回复一次
+無法看影片請使用瀏覽器的無痕模式 耗翻牆網址發佈頁：https://github.com/htapp/htapp
 
-不能看视频请使用浏览器的无痕模式
-无需翻墙地址发布页：https://github.com/htapp/htapp
+使用海外瀏覽器或夸克瀏覽器來存取更多
 
-使用海外浏览器或者夸克浏 览器访问更顺畅
-
-另有狼友反馈部分WIFI会封锁成人内容，打不开请尝试关闭wifi用手机网络试试
+還有狼友回饋部分WIFI會凍結成人內容，打不開請嘗試關閉wifi用手機網路嘗試
