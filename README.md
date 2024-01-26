@@ -1,7 +1,7 @@
 
 最新地址打不開網域前加https://
 
-https://kkht05.xyz
+https://kkht06.xyz
 
 海外永久（需翻牆） hongtao.tv
 
