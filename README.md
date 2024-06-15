@@ -1,6 +1,6 @@
 最新地址打不開網域前加https://
 
-kkht25.vip
+kkht26.vip
 
 海外永久（需翻牆） hongtao.tv
 
