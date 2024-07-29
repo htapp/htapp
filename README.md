@@ -1,6 +1,6 @@
 最新地址打不開網域前加https://
 
-kkht35.vip
+kkht38.vip
 
 海外永久（需翻牆） hongtao.tv
 
@@ -8,6 +8,7 @@ hongtao.vip
 
 郵箱自動發布：
 
+hongtaoav1@gmail.com
 hongtaoav2@gmail.com
 
 注意郵件對同一郵箱每天只回覆一次
