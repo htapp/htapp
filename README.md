@@ -2,7 +2,7 @@
 
 kht81.vip
 
-海外永久（需翻牆） hongtao.tv
+海外永久（需翻牆） kht81.vip
 
 hongtao.vip
 
