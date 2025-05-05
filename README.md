@@ -1,8 +1,8 @@
 最新地址打不開網域前加https://
 
-kht81.vip
+kht82.vip
 
-海外永久（需翻牆） kht81.vip
+海外永久（需翻牆） kht82.vip
 
 hongtao.vip
 
